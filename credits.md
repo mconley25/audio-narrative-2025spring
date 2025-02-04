@@ -32,3 +32,15 @@ Vrymaa. “Footsteps High Heels—Pavement, walk & run.” FreeSound, 5 Sept. 20
 
 *All other sounds for this piece were recorded by the creator. 
 
+
+Prospective Assests (1/26): 
+
+Luggage rolling: use suitcase from home 
+
+Background chatter: FreeSound
+
+Airport Announcements: Friends and family voices with their permission 
+
+Plane landing and taking off: FreeSound
+
+Waves crashing: FreeSound 
