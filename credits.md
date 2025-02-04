@@ -30,5 +30,5 @@ TRP. “Waves on Rocks, light crashing, water.” FreeSound, 29 Jan. 2022, https
 
 Vrymaa. “Footsteps High Heels—Pavement, walk & run.” FreeSound, 5 Sept. 2024, https://freesound.org/people/Vrymaa/sounds/753290/. 
 
-
+*All other sounds for this piece were recorded by the creator. 
 
