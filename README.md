@@ -1,6 +1,6 @@
 Welcome to Maddie's Repository! 
 
-Catching Flights
+**Catching Flights**
 
 
 As someone who loves to travel, I wanted to create an audio narrative that captures the experience of traveling and the joy that comes with reaching the final destination. 
