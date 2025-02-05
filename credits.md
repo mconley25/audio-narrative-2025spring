@@ -13,6 +13,7 @@ Jay_You. “Music Elevator ext part 3/3.” FreeSound, 23 Apr. 2019, https://fre
 
 Juskiddink. “Seagulls…waves…July 08…1of4…freesound…wav.” FreeSound, 3 July. 2008, https://freesound.org/people/juskiddink/sounds/56532/ 
 
+FOSSarts “mug clink double.ogg” FreeSound, 16 Jan. 2023, https://freesound.org/people/FOSSarts/sounds/669929/ 
 
 Max_Cristos. “Welcome to Paradise. Wav.” FreeSound, 19 Feb. 2020, https://freesound.org/people/max_cristos/sounds/506411/ 
 
@@ -30,7 +31,7 @@ TRP. “Waves on Rocks, light crashing, water.” FreeSound, 29 Jan. 2022, https
 
 Vrymaa. “Footsteps High Heels—Pavement, walk & run.” FreeSound, 5 Sept. 2024, https://freesound.org/people/Vrymaa/sounds/753290/. 
 
-*All other sounds for this piece were recorded by the creator. 
+*All other sounds for this piece were recorded by the creator and her sister, Maura.  
 
 
 Prospective Assests (1/26): 
