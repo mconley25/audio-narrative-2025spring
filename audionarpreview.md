@@ -14,3 +14,8 @@ SoundsnapFX. “Jet airplane take off with strong ground whoosh.” FreeSound, 1
 
 Vrymaa. “Footsteps High Heels—Pavement, walk & run.” FreeSound, 5 Sept. 2024, https://freesound.org/people/Vrymaa/sounds/753290/. 
 
+
+Update (2/5)
+I have just added my peers feedback into my audio narrative. I specifically added more sounds earlier on (brushing teeth and pouring coffee) to make it clear that it was early in the morning. These sounds help set the scene a little bit better before leaving for the airport. I also added seagull noises at the very end just to add to the tropical vibe of the narrative. I plan to add a voiceover at the very end to note where listeners can find my credits. 
+
+Updated Sources:
