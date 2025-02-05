@@ -2,6 +2,8 @@ Sources
 
 Ajubamusic. “Steel Drums 90bpm key of a.mp3.” FreeSound, 29 Aug. 2015, https://freesound.org/people/ajubamusic/sounds/320806/ 
 
+AudioCoffee. “Soft Corporate (short version).” FreeSound, 29 July. 2024, https://freesound.org/people/AudioCoffee/sounds/748931/. 
+
 Faithechetty. “Yawning.” FreeSound, 28 Oct. 2021, https://freesound.org/people/faithechetty/sounds/595021/  
 
 
@@ -13,7 +15,7 @@ Jay_You. “Music Elevator ext part 3/3.” FreeSound, 23 Apr. 2019, https://fre
 
 Juskiddink. “Seagulls…waves…July 08…1of4…freesound…wav.” FreeSound, 3 July. 2008, https://freesound.org/people/juskiddink/sounds/56532/ 
 
-FOSSarts “mug clink double.ogg” FreeSound, 16 Jan. 2023, https://freesound.org/people/FOSSarts/sounds/669929/ 
+FOSSarts. “mug clink double.ogg” FreeSound, 16 Jan. 2023, https://freesound.org/people/FOSSarts/sounds/669929/ 
 
 Max_Cristos. “Welcome to Paradise. Wav.” FreeSound, 19 Feb. 2020, https://freesound.org/people/max_cristos/sounds/506411/ 
 
