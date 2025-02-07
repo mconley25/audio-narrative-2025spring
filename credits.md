@@ -1,4 +1,4 @@
-Sources 
+**Sources** 
 
 Ajubamusic. “Steel Drums 90bpm key of a.mp3.” FreeSound, 29 Aug. 2015, https://freesound.org/people/ajubamusic/sounds/320806/ 
 
@@ -36,7 +36,7 @@ Vrymaa. “Footsteps High Heels—Pavement, walk & run.” FreeSound, 5 Sept. 20
 *All other sounds for this piece were recorded by the creator and her sister, Maura.  
 
 
-Prospective Assests (1/26): 
+**Prospective Assests (1/26):** 
 
 Luggage rolling: use suitcase from home 
 
