@@ -1,6 +1,6 @@
 Welcome to my preview file for the draft of my audio narrative! 
 
-**Update: 1/28**
+**Update (1/28)**
 
 For the draft of my audio narrative, I have recorded my own sounds including my alarm, rolling luggae, opening/ closing the door, and zipping uo my suitcase. I also added in footstep sounds from FreeSound. I am trying to show the start of a travel day from the moment you wake up to the final destination. 
 
